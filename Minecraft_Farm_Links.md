@@ -6,6 +6,9 @@ https://www.sportskeeda.com/minecraft/fortune-enchantment-minecraft-all-need-kno
 
 https://minecraft.fandom.com/wiki/Fortune
 
+![image](https://github.com/0Domlightning0/MinecraftMayhem/assets/99225898/16a4601a-fda4-4e4f-b84a-d197e5f7e1f7)
+
+
 #### Default carrot drops
 
 https://minecraft.fandom.com/wiki/Carrot#Obtaining
